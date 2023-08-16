@@ -7,7 +7,8 @@
 有撸货需求的小伙伴也可以进群详聊！
 
 
-![b145cf04d1725553353ee8c277c1d97](https://github.com/AAA111AAA222/jd_maotai/assets/142385624/0ed447a7-2426-4489-8274-b455dead8dc4)
+![微信图片_20230816170344](https://github.com/AAA111AAA222/jd_maotai/assets/142385624/da80d52f-c966-4ddb-bb3b-a4b25b531697)
+
 
 ![微信图片_20230816163201](https://github.com/AAA111AAA222/jd_maotai/assets/142385624/1b8d105b-d35f-4485-b151-6073df4fcc16)
 
